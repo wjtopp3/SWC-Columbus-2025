@@ -1,1 +1,1 @@
-# SWC-Columbus-2025N
+# SWC-Columbus-2025
